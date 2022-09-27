@@ -1,1 +1,4 @@
 # self-authoring
+The Self-Authoring Suite is a series of online writing programs that collectively help you explore your past, present and future. Over a decade of research and clinical trials have led to this series of programs, resulting in thousands of lives set on a better path.
+
+This life-altering program was co-created by Dr. Jordan B Peterson. 10 years ago Jordan and a team of expert researchers began developing a program specifically designed to help individuals rectify "stuck" memories, discover strengths and weaknesses, and develop their ideal future. This program is the culmination of these efforts and has proven itself as an effective resource.
