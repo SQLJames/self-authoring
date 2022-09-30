@@ -1,0 +1,18 @@
+## Brennan Silecchia
+Heading into American Heritage school in plantation Florida in first grade, starting without knowing anyone was a challenge. I remember the first day being terrified and having to be walked by my dad to the classroom. The class was on the backside of the building next to a courtyard facing a canal. The classroom was warm and welcoming, there were plants growing on the window and the alphabet along the wall just below the ceiling. 
+
+It was these first few days that I first met Brennan Silecchia, by denying him one of my penciles. Even though I had probably 100 of them in a box, ever caring mother making sure I was prepared. Then one day when I forgot my book, the teacher paired us together in that first grade class. From that point on we were always together. Either walking in line to from the cafeteria to the classroom or running around on the playground together. I still to this day don't understand why I would do that, but I mean kids are selfish. They tend to keep what they are given and cry about it if its taken away. 
+
+Brennan is one of the most important people in my life at that point and still is. He is family, a brother and I wouldn't hesitate to say that to anyone. It's crazy to think back at that point to realize how far we would go together and the hardships we faced along the way. Honestly, first grade is all a blur at that point, but I remember meeting him, and he still remembers this as well to this day. Though we didn't hang out much after school, I assume because we were still young at that point, it would change in later grades when Mark Wilson would come along. I didn't end up hanging out with Brennan at his house probably until 5th grade. 
+
+### Brennan's House
+located at 1193 NW 183rd Ave, Pembroke Pines, FL 33029. 
+
+This house is a two story house roughly arouund 3000 square feet. More of a traditional house for this time in silver lakes. It had a high ceiling entrance thanks to the two story layout. The stairs to the left of the entrance lead up to the kids bedrooms a bathroom at the exit of the stairs and a loft.  His sister had the room to the right and he was on the left, next to a room that was used for a spare bedroom when they needed guest. This room was also haunted, but well dig into that a bit more later. 
+
+The first floor had the master bedroom off to the right of the entrance along with a small sitting area and straight ahead was the primary dinning room. Stepping to the left, there was the kitchen and a bathroom. Along with the living room where we watched movies on days when we were finished swimming outside. 
+
+We often hung out on his loft up stairs or in the pool. The pool was a common theme amongst the friends that I had as we were often outside running around. Often we would end up moving the TV into another bedroom fromt he loft so we could play baulder's gate, super smash or halo togehter with his buddies Jesse and CJ. Though i never grew that close to either of them, I still have memories of us sitting on the loft laughing as one of us would get destroyed in smash or swimming in the pool acting like we were shooting machine guns. CJ could make that noise perfectly, I on the other hand would always just yell, it was easier afterall. 
+
+Brennan's parents were also super nice, His mom was a nurse who worked long shifts at the hospital and at the school to make sure he was able to attend Heritage along with his sister. She made the best pizza bread, still one of the main things she is known for today. His dad was a bit more of a traditional dad figure, owned a storage facility. He was always joking and making fun of all the trouble we would get into which his mom wasn't happy about, but we thought it was hilarious. 
+

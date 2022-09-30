@@ -1,5 +1,5 @@
 # Epochs
-- lower School
+- Elementary
 - middleschool/highschool
 - liver disease
 - Mary and First Year Broward college
