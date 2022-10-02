@@ -5,11 +5,11 @@ Mark was outgoing and charismatic however, he often got into arguements with his
 ### Mark's house
 while it didn't look like this when we were young, remodels from the new owners and sale of the property. Marks house was located at 12100 NW 7th St, Plantation, FL 33325. 
 
-![House](../../../../data/mark_house/1.webp)
-![Entrance and living room](../../../../data/mark_house/2.webp)
-![dining room next to the entrance](../../../../data/mark_house/3.webp)
-![the bar next to the living room](../../../../data/mark_house/4.webp)
-![kitchen](../../../../data/mark_house/5.webp)
+![House](../../../../data/images/mark_house/1.webp)
+![Entrance and living room](../../../../data/images/mark_house/2.webp)
+![dining room next to the entrance](../../../../data/images/mark_house/3.webp)
+![the bar next to the living room](../../../../data/images/mark_house/4.webp)
+![kitchen](../../../../data/images/mark_house/5.webp)
 
 Mark's house was amazing, it was this 4000+ square foot house with tile flooring an open concept and glass panels through the front entrance and back patio. The back patio was an enclosed area and lead to a pool where we would spend most of our time when we weren't playing games as kids. The patio housed for birds, rats(pets), and a gerbils along with an air hockey table. Mark was constantly outside taking care of his animals or bringing one of them in while we were watching shows or playing games. 
 

@@ -1,0 +1,26 @@
+- Sea world sleepover trip where Brennan and I were framed for painting on the wall of the manetee tanks
+- World of warcraft being introduced to me and Brennan in the summer of 2005
+- Mark creating facebook page for me
+- Emily and all the fights Mark had with her. 
+- The first pregnacy scare that laine gave me 
+- All my sex capades 
+- the multiple times laine would break up with me for her ex boyfriend
+- Shannon, and the meltdown and my senior homecoming
+- the start of Mary
+- Chrous trips to new york to sing at carnegie hall
+- Skipping more 90+ days my senior year 
+- John clark and hanging out with the theater kids after school
+- Getting in trouble for bringing water guns to school
+- Breaking into the 9000 building as it was being built with mark late at night
+- Getting stopped by the cops for playing hide and seek in a construction yard around marks house
+- Shooting a fruit at marks house with a painball gun
+- My short experience with painball guns
+- My dads business starting to fail and downsize
+- The lake of interaction that I started to have with my parents
+- My mom's drug problem and her saying that she wants a divorce from my dad
+- Hanging out with brennan and Nicole on the stairwells on the left side of the 3000 building
+- working out from 9-12th grade lifting weights with coach Fitz-gerald
+- Hepatis C
+  - Breaking that news with laine and her parents
+- Having sex in the forest the summer before my senior year.
+- 

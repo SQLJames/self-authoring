@@ -1,0 +1,18 @@
+- Building a fort in marks garage with a "No girls allowed (unless naked)" sign and playing Conker's Bad Fur Day on n64. 
+- grabbing the rolling foot rest from and riding it down the whole driveway.
+- Mark breaking his leg rollerskating and having to be pushed around in a wheelchair
+- St lucia trips 
+- Playing powerstone, dragonball games
+- traveling to mark's grandmothers house in the woods and mostly just playing gundum games on the living room or exploring the creek outback
+- baking classes after my first year class at heritage
+- swimming in the canal after this hurricane came through and flooded everything and finding a surfboard that we used to swim on in the pool for the next 3 months.
+- Gerry lathop breaking a glowstick at mark's house and calling himself mr sexy the whole weekend.
+- Thomas le maire he though he was only there for about 2 years, we went to st lucia together and introduced me to phantasy star online 
+- running around st lucia as kids asking what a wanker was extremely loud
+- hosting a yugioh tournament at stlucia in an event room 
+- Mark complaining that I beat him so bad that his mom came in asking us to have me go easier
+- Going to computer events at the FTL War Memorial with my dad
+- Mark saying we were watching porn on the laptop that my parents got me and having his mom leave me a note on my computer that morning. 
+- Andrew pestano's birthday sleepover with gian bavaro and every other one of my friends and having us all play paper mario to beat the game
+- Going to Tennis camp and brining my xbox to play when it rained, sooo much halo
+- 9/11 and going home from school with mark's mom thinking the planes were headed to miami next and not being able to reach them on their phones
