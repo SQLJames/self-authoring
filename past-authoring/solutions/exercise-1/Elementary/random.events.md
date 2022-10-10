@@ -16,3 +16,6 @@
 - Andrew pestano's birthday sleepover with gian bavaro and every other one of my friends and having us all play paper mario to beat the game
 - Going to Tennis camp and brining my xbox to play when it rained, sooo much halo
 - 9/11 and going home from school with mark's mom thinking the planes were headed to miami next and not being able to reach them on their phones
+- staying in my parents camper at the warehouse while they were working on the weekend or over summer.
+- Spending time in my dads warehouse building computers from old computer parts where you actually needed to place the ram modules onto the board.
+- eating roach coach with my dad 

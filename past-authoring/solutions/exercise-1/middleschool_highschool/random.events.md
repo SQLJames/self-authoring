@@ -23,4 +23,14 @@
 - Hepatis C
   - Breaking that news with laine and her parents
 - Having sex in the forest the summer before my senior year.
-- 
+- Rookies and all the card events we used to go to
+- The massive lan parties we used to have at marks house 
+- The rager of a party we threw our senior year graduation which broke tables 
+- the terrible position I put Nicole espisito 
+- Watching stargate and startrek next generation with my dad
+- Meeting AJ TJ and Luck 
+- John cassidy and spending time in his hottub with with mary and her friend lauren getting them to makeout together as AJ peed into his pool. 
+- my dad teaching me to shoot with a 22short rifle in his warehouse 
+- driving around with Jonathan clark in his dads f350 singing tenacious D and having him introduce me to publix subs.
+- getting my first car 
+- fighting with all my teachers about giving speechs, i never liked talking in front of my classmates even though now i realize that they dont care to listen anyways.
